@@ -4,4 +4,4 @@
 ✦ Aspiring engineer in the motorsports and the automotive industry<br/>
 ✦ Studying Mechanical Engineering @ the University of South Carolina, Columbia<br/>
 ✦ Studied Biochemistry & Astronomy @ Wellesley College in Wellesley, Massachusetts<br/>
-✦ Passionate about connecting the arts and sciences together, showing how they work hand-in-hand
+✦ Passionate about connecting the arts and sciences together
