@@ -1,4 +1,10 @@
 # Hello, welcome to my page! ₊˚⊹⋆
-### My name's Bea, and I'm here to smply document my projects and share them to the world!
+### My name's Bea, and I'm here to document my projects and share them to the world!
 
-Mechanical Engineer at the University of South Carolina
+Aspiring engineer in the motorsports and the automotive industry<br/>
+Studying Mechanical Engineering at the University of South Carolina - Columbia<br/>
+Studied Biochemistry and Astronomy at Wellesley College<br/>
+
+
+
+
