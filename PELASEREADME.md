@@ -2,6 +2,6 @@
 ### My name's Bea, and I'm here to document my projects and share them to the world!
 
 ✦ Aspiring engineer in the motorsports and the automotive industry<br/>
-✦ Studying Mechanical Engineering at the University of South Carolina, Columbia<br/>
-✦ Studied Biochemistry and Astronomy at Wellesley College in Wellesley, Massachusetts<br/>
+✦ Studying Mechanical Engineering @ the University of South Carolina, Columbia<br/>
+✦ Studied Biochemistry & Astronomy @ Wellesley College in Wellesley, Massachusetts<br/>
 ✦ Passionate about connecting the arts and sciences together, showing how they work hand-in-hand
