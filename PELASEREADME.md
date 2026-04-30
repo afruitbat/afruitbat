@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello! ₊˚⊹⋆
 
 <!--
 **afruitbat/afruitbat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
